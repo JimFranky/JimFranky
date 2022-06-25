@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JimFranky
 - 👀 I’m interested in chatting with the world
-- 🌱 I’m currently learning how to code my heart
+- 🌱 I’m currently learning how to code my mind
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
